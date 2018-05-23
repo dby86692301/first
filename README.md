@@ -2,7 +2,7 @@
 
 出轨 ：http://www.leiba.com/comicinfo/50/ 
 
-恋爱辅助器：http://www.930mh.com/manhua/7995/
+恋爱辅助器、恋爱作弊器：http://www.930mh.com/manhua/7995/
 
 欲求王、爱上男闺蜜、同居、可爱的家伙（可爱的女友）、(窥视者搜偷窥)偷窥1,2、神级公务员 等热门韩漫
 
