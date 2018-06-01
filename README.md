@@ -1,5 +1,7 @@
 最新有艺术价值有剧情韩漫免费地址
 
+！！！如果微信内不能打开，请复制链接到浏览器中浏览
+
 出轨 ：http://www.leiba.com/comicinfo/50/ 
 
 恋爱辅助器、恋爱作弊器：http://www.930mh.com/manhua/7995/
