@@ -6,21 +6,19 @@
 
 恋爱辅助器、恋爱作弊器：http://www.930mh.com/manhua/7995/
 
-欲求王、爱上男闺蜜、同居、可爱的家伙（可爱的女友）、神级公务员 等热门韩漫，不一一列举，请去网站内搜索
+欲求王：http://m.5177mai.com/list.php?tid=29
 
-http://m.5177mai.com  搜索相应漫画名即可
+爱上男闺蜜、非常关系、h-mate、同居 搜索 h-mate:http://m.5177mai.com/list.php?tid=32
 
-爱上男闺蜜、非常关系、h-mate、同居 搜索 h-mate
+可爱的家伙（可爱的女友）:http://m.5177mai.com/list.php?tid=39
 
-可爱的家伙（可爱的女友） 搜索可爱的家伙
-
-(窥视者搜偷窥1,2)偷窥 
+(窥视者搜偷窥1,2)偷窥 ：http://m.5177mai.com/plus/search_m.php?kwtype=0&typeid=70&q=%CD%B5%BF%FA&submit=%CB%D1+%CB%F7
 
 猪圈、丧尸避难所 http://m.5177mai.com 搜索猪圈
 
-looser(失落者、升职攻略)：http://m.5177mai.com 搜索失落者
+looser(失落者、升职攻略)：http://m.5177mai.com/list.php?tid=120
 
-占据人生(屌丝替高富帅继续生活): http://m.5177mai.com 搜索新面孔
+占据人生(屌丝替高富帅继续生活): http://m.5177mai.com/list.php?tid=57
 
 如果不知道名字或者名字不对，也可公众号后台咨询哦
 
